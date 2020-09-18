@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Sereg20.github.io/rsschool-cv/cv
